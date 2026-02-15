@@ -1,0 +1,3 @@
+# Intro
+Manali to Leh highway is one of the highest, dangerous, yet the most beautiful roads in the world. This Himalayan highway has the lowest altitude of approximately 6,000 feet, and the highest altitude of approximately 17,300 feet. Every year, this highway is closed for six months due to heavy snowfall. Due to unpredictable climate conditions, meticulous planning is required to go for this journey.
+You can refer to the following illustration to get an idea of distance and altitude that we covered on cycle and the places where we stayed at night.
